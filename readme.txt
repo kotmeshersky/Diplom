@@ -1,1 +1,0 @@
-the first word is "I". damn. the fuck. fff
